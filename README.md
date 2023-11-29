@@ -1,8 +1,8 @@
-# Info of Aerials
-
-## Privacy Policy
+## Aerials Privacy Policy
 
 Under Construction
+
+###### 
 
 ## Licensing Forms of Contents
 
